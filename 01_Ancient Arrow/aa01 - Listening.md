@@ -15,7 +15,7 @@ embroidered with such care they
 render spirit a ghost, and God,  
 a telescope turned backwards upon itself  
 dreaming us awake.  
-
+	
 Never-blooming thoughts surround me  
 like a regatta of crewless ships.  
 I listen leopard-like,  
